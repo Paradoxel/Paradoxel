@@ -1,1 +1,1 @@
-Backend Developer in Progress 🌱
+Computer Engineering Student @ IKIU | Backend Developer in Progress 🌱
