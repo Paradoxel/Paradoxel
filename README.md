@@ -1,2 +1,2 @@
-CE Student @ IKIU | Backend Developer in Progress
+CE Student @ IKIU
  
