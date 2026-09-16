@@ -1,3 +1,1 @@
-CE Student @ IKIU  
- 
-HEHE
+CE Student @ IKIU
